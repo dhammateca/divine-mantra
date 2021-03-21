@@ -1,11 +1,12 @@
-*[Namo tassa] bhagavato arahato sammā-sambuddhassa.* **(three times)**
+*[Namo tassa] bhagavato arahato sammā-sambuddhassa.* **(de trei ori)**
 Homage to the Blessed One, the Worthy One, the Rightly Self-awakened One.
+Omagiu Binecuvântatului, Vrednicului, cel Însuși-trezit
 
 *Ukāsa. Dvārattayena kataṁ,*  
 *sabbaṁ apāradhaṁ khamatu no (me) bhante.*  
 We (I) ask your leave. We (I) ask you to forgive us (me) for whatever wrong we (I) have done with the three doors (of body, speech, & mind).
 
-*Vandāmi bhante cetiyaṁ, sabbaṁ sabbattha ṭhāne,*
+*Vandāmi bhante cetiyaṁ, sabbaṁ sabbattha ṭhāne,*  
 *supatiṭṭhitaṁ sārīraṅka-dhātuṁ, mahā-bodhiṁ buddha-rūpaṁ, sakkāratthaṁ.*
 I revere every stupa established in every place, every relic of the Buddha’s body, every Great Bodhi tree, every Buddha image that is an object of veneration
 

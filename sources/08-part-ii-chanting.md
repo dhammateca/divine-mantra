@@ -1,4 +1,4 @@
-# Part II: Chanting
+# Partea a doua: Incantație
 
 **(Investing the six properties with the Buddhaguṇa)**
 

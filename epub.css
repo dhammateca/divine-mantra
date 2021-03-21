@@ -26,18 +26,32 @@ body {
 }
 
 p {
-  font-size: 0.8em;
-  font-style: italic;
+  font-size: 0.9em;
+  line-height: 1.2em;
+  text-align: justify;
+  text-indent: 2.5em;
 }
 
+/* Pali verse */
 em {
-  text-align: center;
-  text-indent: 0;
+  font-style: italic;
+  text-indent: 30px;
   font-size: 1.2em;
-  line-height: 1.1em;
+}
+
+strong {
+  font-style: italic;
+  font-weight: normal;
 }
 
 blockquote {
   font-size: 100%;
   font-style: italic;
+  text-align: center;
+}
+
+h1 {
+  text-align: center;
+  font-style: italic;
+  font-weight: normal;
 }
