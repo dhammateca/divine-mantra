@@ -1,61 +1,71 @@
-There are seven basic steps:
+# Partea a treia: meditație
 
-1. Start out with three or seven long in-&-out breaths, thinking bud- with the in-breath, and dho with the out. Keep the meditation syllable as long as the breath.
+Sunt șapte etape principale:
 
-2. Be clearly aware of each in-&-out breath.
+1. Începe cu trei sau șapte inspirații și expirații lungi, gândind „bud-” la inspirație și „dho” la expirație. Susține silaba de meditație cât durează și respirația.  
 
-3. Observe the breath as it goes in & out, noticing whether it’s comfortable or uncomfortable, broad or narrow, obstructed or free-flowing, fast or slow, short or long, warm or cool. If the breath doesn’t feel comfortable, change it until it does. For instance, if breathing in long & out long is uncomfortable, try breathing in short & out short. As soon as you find that your breathing feels comfortable, let this comfortable breath sensation spread to the different parts of the body.
+2. Fii conștient clar de fiecare inspirație și expirație.  
 
-To begin with, inhale the breath sensation at the base of the skull and let it flow all the way down the spine. Then, if you are male, let it spread down your right leg to the sole of your foot, to the ends of your toes, and out into the air. Inhale the breath sensation at the base of the skull again and let it spread down your spine, down your left leg to the ends of your toes, and out into the air. (If you are female, begin with the left side first, because the male & female nervous systems are different.)
+3. Observă respirația cum intră și iese, remarcând dacă e confortabilă sau inconfortabilă, largă sau îngustă, obstrucționată sau liberă să circule, rapidă sau înceată, scurtă sau lungă, caldă sau rece. Dacă respirația nu pare confortabilă, schimb-o până devine astfel. De exemplu, dacă inspirația lungă și expirația lungă sunt inconfortabile, încearcă să inspiri scurt și să expiri scurt. Imediat ce descoperi că senzația respirației e confortabilă, lasă această senzație a respirației confortabile să se răspândească prin diferitele părți ale corpului.
 
-Then let the breath from the base of the skull spread down over both shoulders, past your elbows & wrists, to the tips of your fingers, and out into the air.
+Pentru început, inspiră senzația respirației la baza craniului și las-o să se scurgă de-alungul coloanei vertebrale. Apoi, dacă ești bărbat, las-o să se răspândească în jos prin piciorul drept până în talpă, până în vârful degetelor și înafară prin aer. Inspiră, din nou, senzația respirației la baza craniului și las-o să se răspândească în jos pe coloana vertebrală, în jos prin piciorul stâng până în vârful degetelor și înafară prin aer. (Dacă ești femeie, începe mai întâi cu partea stângă, deoarece sistemul nervos al femeilor e diferit de cel al bărbaților.)
 
-Let the breath at the base of the throat spread down the central nerve at the front of the body, past the lungs & liver, all the way down to the bladder & colon.
+Apoi lasă respirația de la baza craniului să se răspândească prin ambii umeri, să treacă de coate și încheieturi, până în vârful degetelor și înafară prin aer.
 
-Inhale the breath right at the middle of the chest and let it go all the way down to your intestines.
+Lasă respirația de la baza gâtului să se răspândească în jos prin nervul central, să treacă de plămâni și ficat, jos de tot până în vezică și colon.
 
-Let all these breath sensations spread so that they connect & flow together, and you’ll feel a greatly improved sense of well-being.
+Inspiră fix prin mijlocul pieptului și lasă să-și facă drum până în intestine.
 
-4. Learn four ways of adjusting the breath:
+Lasă toate aceste senzații ale respirației să se răspândească ca să poată să se conecteze și să curgă împreună și vei simți un sentiment mult îmbunătățit de bunăstare.
 
-a. in long & out long,
-b. in long & out short,
-c. in short & out long,
-d. in short & out short.
+4. Învață patru feluri de a potrivi respirația:
 
-Breathe whichever way is most comfortable for you. Or, better yet, learn to breathe comfortably all four ways, because your physical condition & your breath are always changing.
+a. inspirație lungă și expirație lungă,  
 
-5. Become acquainted with the bases or focal points for the mind—the resting spots of the breath—and center your awareness on whichever one seems most comfortable. A few of these bases are:
+b. inspirație lungă și expirație scurtă,  
 
-a. the tip of the nose,
-b. the middle of the head,
-c. the palate,
-d. the base of the throat,
-e. the breastbone (the tip of the sternum),
-f. the navel (or a point just above it).
+c. inspirație scurtă și expirație lungă,  
 
-If you suffer from frequent headaches or nervous problems, don’t focus on any spot above the base of the throat. And don’t try to force the breath or put yourself into a trance. Breathe freely & naturally. Let the mind be at ease with the breath—but not to the point where it slips away.
+d. inspirație scurtă și expirație scurtă,  
 
-6. Spread your awareness—your sense of conscious feeling—throughout the entire body.
+Respiră în oricare fel ți-e cel mai confortabil. Sau, mai bine, învață să respiri confortabil în toate cele patru feluri, deoarece condiția fizică și respirația se schimbă mereu.
 
-7. Unite the breath sensations throughout the body, letting them flow together comfortably, keeping your awareness as broad as possible. Once you are fully aware of the aspects of the breath you already know in your body, you’ll come to know all sorts of other aspects as well. The breath, by its nature, has many facets: breath sensations flowing in the nerves, those flowing around & about the nerves, those spreading from the nerves to every pore. Beneficial breath sensations & harmful ones are mixed together by their very nature.
+5. Familiarizează-te cu bazele sau punctele focale ale minții – punctele de odihnă ale respirației – și centrează-ți cunoștința pe oricare dintre acestea care par cele mai confortabile. Câteva dintre aceste baze sunt:
 
-To summarize: (a) for the sake of improving the energy already existing in every part of your body, so that you can contend with such things as disease & pain; and (b) for the sake of clarifying the knowledge already within you, so that it can become a basis for the skills leading to release & purity of heart—you should always bear these seven steps in mind, because they are absolutely basic to every aspect of breath meditation.
+a. vârful nasului,  
+
+b. mijlocul capului,  
+
+c. cerul gurii,  
+
+d. baza gâtului,  
+
+e. vârful sternului,  
+
+f. buricul (sau un punct chiar deasupra acestuia).
+
+Dacă suferi de dureri frecvente de cap sau probleme cu nervii, nu te concentra pe orice punct deasupra bazei gâtului. Și nu încercă să forțezi respirația sau să intri într-o transă. Respiră liber și natural. Lasă mintea să fie în largul ei cu respirația – dar nu până în punctul în care dispare.
+
+6. Răspândește-ți cunoștința – senzația de trăire conștientă – prin întregul corp.
+
+7. Unește senzațiile respirației prin întregul corp, lăsându-le să curgă împreună confortabil, păstrându-ți cunoștința cât se poate de largă. Odată ce ești pe deplin conștient de aspectele respirației pe care o cunoști deja în corpul tău, îți vei da seama și de multe alte aspecte. Respirația, prin natura ei, are multe fațete: senzațiile respirației care circulă în nervi, acelea care circulă în jurul nervilor, acelea care se răspândesc de la nervi la fiecare por. Senzațiile benefice și cele dăunătoare ale respirației sunt amestecate prin însăși natura lor.
+
+Pentru a rezuma: (a) cu scopul de a îmbunătăți energia deja existentă în fiecare parte a corpului tău, ca să te poți lupta cu lucruri precum boală și durere; și (b) cu scopul de a clarifica cunoașterea deja existentă în tine, ca să poată deveni o bază pentru abilitățile care duc la eliberarea și puritatea inimii – trebuie să ții cont mereu de aceste șapte etape, pentru că sunt fundamentale pentru fiecare aspect al meditației cu respirația.
 
 ***
 
-Homage, chanting, and meditation have to go hand-in-hand before they can truly purify the mind, in line with the basic principles of the Buddha’s teachings:
+Omagiul, incantația și meditația trebuie să meargă mână în mână înainte să poată purifica cu adevărat mintea, în concordanță cu principiile de bază ale învățăturii lui Buddha:
 
-*Sabba-pāpassa akaraṇaṁ*
-Don't let anything evil
-leak into your thoughts, words, or deeds.
+*Sabba-pāpassa akaraṇaṁ*  
+Nu lăsa nimic rău  
+să se strecoare în gândurile, cuvintele sau faptele tale.
 
-*Kusalassūpasampadā*
-Develop skill in all of your actions.
+*Kusalassūpasampadā*  
+Dezvoltă pricepere în toate faptele tale.
 
-What this means is that in homage we have acted skillfully with our deeds, in chanting we have acted skillfully with our words, and in meditation we have acted skillfully with our thoughts. Once this is the case, we will be able to reach the heart of the Buddha’s teachings:
+Ce înseamnă asta e că prin omagiu ne-am comportat iscusit cu faptele, prin incantație ne-am comportat iscusit cu vorbele iar prin meditație ne-am comportat iscusit cu gândurile. Când lucrurile stau așa, vom fi capabili să ajungem la inima învățăturii lui Buddha:
 
 *Sacitta-pariyodapanaṁ*
-Attain purity of heart.
+Dobândește puritatea inimii.
 
-Everything in the world comes about solely through the power of the heart. A corrupt heart will abuse this power. A well-trained heart can use this power to uplift others and to gain blessings beyond price.
+Toate din lume vin exclusiv prin puterea inimii. O inimă coruptă va abuza această putere. O inimă bine instruită poate folosi această putere să îi înnobileze pe alții și să obțină binecuvântări de neprețuit.
