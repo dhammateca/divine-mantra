@@ -31,7 +31,7 @@ Aceste șase proprietăți există în fiecare din noi, așadar când repeți in
 
 Aceeași incantație poate fi folosită pentru cele cinci agregate, cele douăsprezece medii senzoriale și, cele 32 de părți ale corpului. Metoda de incantație e la fel ca pentru cele șase proprietăți, doar înlocuind numele diferitelor agregate, medii senzoriale și părți ale corpului după cum urmează:
 
-#### Cele cinci agregate
+### Cele cinci agregate
 
 1. *Rūpañca*  
 Formă  
@@ -48,7 +48,7 @@ Factori volitivi
 5. *Viññāṇañca*  
 Conștiința celor șase simțuri  
 
-#### Cele douăsprezece medii senzoriale
+### Cele douăsprezece medii senzoriale
 
 1. *Cakkhu ca*  
 Ochi  
@@ -86,7 +86,7 @@ Senzații tactile
 12. *Dhammārammaṇañca*  
 Idei  
 
-#### Cele 32 părți ale corpului
+### Cele 32 părți ale corpului
 
 1. *Kesā ca*  
 Părul de pe cap  
