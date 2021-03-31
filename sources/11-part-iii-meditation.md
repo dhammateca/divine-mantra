@@ -20,29 +20,21 @@ Lasă toate aceste senzații ale respirației să se răspândească ca să poat
 
 4. Învață patru feluri de a potrivi respirația:
 
-a. inspirație lungă și expirație lungă,  
-
-b. inspirație lungă și expirație scurtă,  
-
-c. inspirație scurtă și expirație lungă,  
-
-d. inspirație scurtă și expirație scurtă,  
+- inspirație lungă și expirație lungă
+- inspirație lungă și expirație scurtă
+- inspirație scurtă și expirație lungă
+- inspirație scurtă și expirație scurtă,  
 
 Respiră în oricare fel ți-e cel mai confortabil. Sau, mai bine, învață să respiri confortabil în toate cele patru feluri, deoarece condiția fizică și respirația se schimbă mereu.
 
 5. Familiarizează-te cu bazele sau punctele focale ale minții – punctele de odihnă ale respirației – și centrează-ți cunoștința pe oricare dintre acestea care par cele mai confortabile. Câteva dintre aceste baze sunt:
 
-a. vârful nasului,  
-
-b. mijlocul capului,  
-
-c. cerul gurii,  
-
-d. baza gâtului,  
-
-e. vârful sternului,  
-
-f. buricul (sau un punct chiar deasupra acestuia).
+- vârful nasului,  
+- mijlocul capului,  
+- cerul gurii,  
+- baza gâtului,  
+- vârful sternului,  
+- buricul (sau un punct chiar deasupra acestuia).
 
 Dacă suferi de dureri frecvente de cap sau probleme cu nervii, nu te concentra pe orice punct deasupra bazei gâtului. Și nu încercă să forțezi respirația sau să intri într-o transă. Respiră liber și natural. Lasă mintea să fie în largul ei cu respirația – dar nu până în punctul în care dispare.
 
@@ -65,7 +57,7 @@ Dezvoltă pricepere în toate faptele tale.
 
 Ce înseamnă asta e că prin omagiu ne-am comportat iscusit cu faptele, prin incantație ne-am comportat iscusit cu vorbele iar prin meditație ne-am comportat iscusit cu gândurile. Când lucrurile stau așa, vom fi capabili să ajungem la inima învățăturii lui Buddha:
 
-*Sacitta-pariyodapanaṁ*
+*Sacitta-pariyodapanaṁ*  
 Dobândește puritatea inimii.
 
 Toate din lume vin exclusiv prin puterea inimii. O inimă coruptă va abuza această putere. O inimă bine instruită poate folosi această putere să îi înnobileze pe alții și să obțină binecuvântări de neprețuit.

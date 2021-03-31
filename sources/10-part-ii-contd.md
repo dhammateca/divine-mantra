@@ -21,9 +21,9 @@ Incantația pentru fiecare din proprietățile rămase e identică cu incantați
 *Ākāsā ca saṅghānaṁ...*  
 
 6. Proprietatea conștiință:  
-*Viññāṇañca buddha-guṇaṁ...*
-*Viññāṇañca dhammetaṁ...*
-*Viññāṇañca saṅghānaṁ...*
+*Viññāṇañca buddha-guṇaṁ...*  
+*Viññāṇañca dhammetaṁ...*  
+*Viññāṇañca saṅghānaṁ...*  
 
 După ce ai memorat secțiunea 1, secțiunile rămase nu vor prezenta probleme, pentru că practic sunt la fel, fiind diferite doar prin numele proprietății.
 
